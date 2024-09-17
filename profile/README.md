@@ -1,4 +1,4 @@
-## RMP Systems 👋
+## RMP Systems
 
 RMP Systems is a leading provider of Legionella and water management systems in Melbourne, Australia. They offer a range of services, including:
 
