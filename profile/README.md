@@ -9,7 +9,7 @@ RMP Systems is a leading provider of Legionella and water management systems in 
 
 RMP Systems has a strong reputation for providing high-quality services and is committed to helping clients manage Legionella risk effectively.
 
-- **Website:** [https://www.rmpsystems.com.au/](https://rmpsystems.com.au/)
+- **Website:** [https://rmpsystems.com.au/](https://rmpsystems.com.au/)
 - **Phone:** 1300 899 237
 - **Address:** Level 27, 101 Collins St., Melbourne, Victoria 3000
 - **Services:** Legionella risk assessments, water management systems, training and education, consulting services
